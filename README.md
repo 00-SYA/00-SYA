@@ -6,12 +6,6 @@ Hi! welcome to my Github profile <3
 - Omnisexual.
 - Otrovert.
 
- 🎧 Fav artists/bands:
- 
-  Avril Lavigne.
-  Set it off.
-  KATSEYE.
-  Laufey.
 
  🔗 Discomforts: 
  - 18+.
@@ -19,4 +13,4 @@ Hi! welcome to my Github profile <3
  - Insults.
  - Disrespect.
 
-Thats all about me! Have a great day :P
+Please int with care! Im a human too.
