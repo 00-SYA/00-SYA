@@ -7,12 +7,10 @@ Hi! welcome to my Github profile <3
 - Otrovert.
 
  🎧 Fav artists/bands:
+ 
   Avril Lavigne.
-  
   Set it off.
-
   KATSEYE.
-  
   Laufey.
 
  🔗 Discomforts: 
