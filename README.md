@@ -13,4 +13,4 @@ Hi! welcome to my Github profile <3
  - Insults.
  - Disrespect.
 
-Please int with care! Im a human too.
+hugggeeee Avril Lavigne lover
